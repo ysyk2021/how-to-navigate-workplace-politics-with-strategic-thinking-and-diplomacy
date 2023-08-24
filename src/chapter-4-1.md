@@ -1,5 +1,3 @@
-The Role of Building Strategic Relationships in Navigating Workplace Politics
-==========================================================================================================================
 
 Building strategic relationships is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the role of building strategic relationships in navigating workplace politics.
 

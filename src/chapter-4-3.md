@@ -1,5 +1,3 @@
-Using Networking and Relationship-Building Techniques
-==================================================================================================
 
 Building strategic relationships is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to use networking and relationship-building techniques to build strategic relationships.
 

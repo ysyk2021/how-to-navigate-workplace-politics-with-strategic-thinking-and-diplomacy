@@ -1,5 +1,3 @@
-Strategies for Assessing the Political Landscape
-==============================================================================================
 
 Assessing the political landscape is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore strategies for assessing the political landscape.
 

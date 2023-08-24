@@ -1,5 +1,3 @@
-Methods for Measuring Success in Navigating Workplace Politics
-=============================================================================================================================
 
 Measuring success is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore methods for measuring success in navigating workplace politics.
 

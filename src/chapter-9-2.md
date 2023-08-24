@@ -1,5 +1,3 @@
-Analyzing Feedback and Performance Data and KPIs
-===============================================================================================================
 
 Measuring success is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to measure success in navigating workplace politics by analyzing feedback and performance data and key performance indicators (KPIs).
 

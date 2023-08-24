@@ -1,5 +1,3 @@
-Chapter 10: Applying Workplace Politics Skills with Strategic Thinking and Diplomacy
-====================================================================================
 
 Applying workplace politics skills with strategic thinking and diplomacy is essential for individuals who want to navigate these dynamics effectively and achieve their career objectives. In this chapter, we will explore the benefits of applying workplace politics skills with strategic thinking and diplomacy, strategies for using these skills effectively, and how to demonstrate leadership and emotional intelligence skills.
 
@@ -42,5 +40,4 @@ Conclusion
 ----------
 
 Applying workplace politics skills with strategic thinking and diplomacy is essential for individuals who want to navigate these dynamics successfully and achieve their career objectives. By developing strategic thinking skills, building positive relationships, managing conflict effectively, using diplomacy and tact, and demonstrating leadership and emotional intelligence skills, individuals can position themselves as valuable assets to their organizations and contribute to their success.
-
 

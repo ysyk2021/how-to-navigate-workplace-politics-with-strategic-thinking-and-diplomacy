@@ -1,5 +1,3 @@
-Strategies for Navigating Workplace Politics with Strategic Thinking and Diplomacy
-===============================================================================================================================
 
 Navigating workplace politics requires a combination of strategic thinking and diplomacy skills. In this chapter, we will explore strategies and techniques for navigating workplace politics effectively.
 

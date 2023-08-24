@@ -1,5 +1,3 @@
-Definition of Workplace Politics
-=============================================================================
 
 Understanding workplace politics is essential in navigating the complex dynamics and relationships that exist within any organization. In this chapter, we will explore the definition of workplace politics and its impact on individuals and organizations.
 

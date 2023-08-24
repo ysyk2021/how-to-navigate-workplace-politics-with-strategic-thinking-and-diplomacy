@@ -1,5 +1,3 @@
-The Importance of Leveraging Your Influence and Persuasion Skills in Navigating Workplace Politics
-==============================================================================================================================================================
 
 Leveraging influence and persuasion skills is a critical component of navigating workplace politics successfully. In this chapter, we will explore why leveraging your influence and persuasion skills is so important.
 

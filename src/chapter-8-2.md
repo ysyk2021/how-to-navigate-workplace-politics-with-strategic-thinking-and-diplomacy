@@ -1,5 +1,3 @@
-Strategies for Staying Ethical and Professional
-============================================================================================
 
 Staying ethical and professional is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore strategies for staying ethical and professional in the workplace.
 

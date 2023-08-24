@@ -1,4 +1,4 @@
-# Introduction
+
 
 Workplace politics can be a complex and challenging environment to navigate, but with the right skills and strategies, individuals can successfully navigate these waters and achieve their goals. How to Navigate Workplace Politics with Strategic Thinking and Diplomacy is a comprehensive guide to developing the skills needed to excel in navigating office politics.
 

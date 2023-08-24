@@ -1,5 +1,3 @@
-Demonstrating Leadership and Emotional Intelligence Skills
-================================================================================================================================================
 
 Applying workplace politics skills with strategic thinking and diplomacy also involves demonstrating leadership and emotional intelligence skills. In this chapter, we will explore strategies for demonstrating these skills in the workplace.
 

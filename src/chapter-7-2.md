@@ -1,5 +1,3 @@
-Strategies for Leveraging Your Influence and Persuasion Skills
-==========================================================================================================================
 
 Leveraging influence and persuasion skills is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore strategies for leveraging your influence and persuasion skills.
 

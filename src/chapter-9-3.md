@@ -1,5 +1,3 @@
-Adjusting Workplace Politics Strategies Based on Feedback
-========================================================================================================================
 
 Measuring success in navigating workplace politics is essential for individuals who want to achieve their personal and professional goals. In this chapter, we will explore how to measure success in navigating workplace politics and adjust strategies based on feedback.
 

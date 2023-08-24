@@ -1,5 +1,3 @@
-Chapter 3: Assessing the Political Landscape
-============================================
 
 Assessing the political landscape is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the importance of assessing the political landscape, strategies for doing so, and how to use stakeholder analysis and power mapping.
 

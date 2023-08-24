@@ -1,5 +1,3 @@
-Chapter 5: Communicating Effectively
-====================================
 
 Communicating effectively is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the importance of communicating effectively, strategies for doing so, and how to use active listening and conflict resolution techniques.
 

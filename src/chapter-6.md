@@ -1,5 +1,3 @@
-Chapter 6: Managing Conflict and Navigating Difficult Situations
-================================================================
 
 Managing conflict and navigating difficult situations is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the role of managing conflict and navigating difficult situations, strategies for doing so, and how to use negotiation and problem-solving techniques.
 
@@ -44,5 +42,4 @@ Conclusion
 ----------
 
 Managing conflict and navigating difficult situations is essential for individuals who want to navigate workplace politics successfully and maintain positive relationships with colleagues and superiors. By identifying the root cause, maintaining professionalism, using active listening skills, being open-minded, and finding common ground, individuals can manage conflicts and navigate difficult situations effectively. Remember to use negotiation and problem-solving techniques such as analyzing the situation, defining goals and objectives, generating options, evaluating options, and negotiating a solution to find mutually beneficial solutions that address the root cause of conflicts or difficult situations.
-
 

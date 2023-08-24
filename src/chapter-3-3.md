@@ -1,5 +1,3 @@
-Using Stakeholder Analysis and Power Mapping
-==========================================================================================
 
 Assessing the political landscape is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to use stakeholder analysis and power mapping to assess the political landscape.
 

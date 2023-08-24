@@ -1,5 +1,3 @@
-Strategies for Using Workplace Politics Skills with Strategic Thinking and Diplomacy
-===========================================================================================================================================================================
 
 Navigating workplace politics requires not only political savvy but also strategic thinking and diplomacy. In this chapter, we will focus on strategies for using workplace politics skills with strategic thinking and diplomacy.
 

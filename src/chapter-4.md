@@ -1,5 +1,3 @@
-Chapter 4: Building Strategic Relationships
-===========================================
 
 Building strategic relationships is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the role of building strategic relationships, strategies for doing so, and how to use networking and relationship-building techniques.
 

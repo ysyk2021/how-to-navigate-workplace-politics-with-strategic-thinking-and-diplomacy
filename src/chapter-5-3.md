@@ -1,5 +1,3 @@
-Using Active Listening and Conflict Resolution Techniques
-===============================================================================================
 
 Communicating effectively is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to use active listening and conflict resolution techniques to communicate effectively.
 

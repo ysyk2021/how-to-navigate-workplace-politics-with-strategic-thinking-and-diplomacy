@@ -1,5 +1,3 @@
-The Importance of Assessing the Political Landscape in Navigating Workplace Politics
-==================================================================================================================================
 
 Assessing the political landscape is a crucial step for individuals who want to navigate workplace politics successfully. In this chapter, we will explore why assessing the political landscape is so important.
 

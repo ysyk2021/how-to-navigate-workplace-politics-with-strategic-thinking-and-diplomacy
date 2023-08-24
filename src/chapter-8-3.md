@@ -1,5 +1,3 @@
-Using Integrity and Accountability as Guiding Principles
-=====================================================================================================
 
 Staying ethical and professional is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to use integrity and accountability as guiding principles in staying ethical and professional.
 

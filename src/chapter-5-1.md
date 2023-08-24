@@ -1,5 +1,3 @@
-The Importance of Communicating Effectively in Navigating Workplace Politics
-==================================================================================================================
 
 Communicating effectively is an essential skill for individuals who want to navigate workplace politics successfully. In this chapter, we will explore why communicating effectively is so important.
 

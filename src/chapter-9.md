@@ -1,5 +1,3 @@
-Chapter 9: Measuring Success in Navigating Workplace Politics
-=============================================================
 
 Measuring success in navigating workplace politics is essential for individuals who want to achieve their personal and professional goals. In this chapter, we will explore methods for measuring success, analyzing feedback and performance data, and adjusting workplace politics strategies based on feedback.
 

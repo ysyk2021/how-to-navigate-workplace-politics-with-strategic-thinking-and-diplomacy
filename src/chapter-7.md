@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Your Influence and Persuasion Skills
-==========================================================
 
 Leveraging your influence and persuasion skills is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the importance of leveraging your influence and persuasion skills, strategies for doing so, and how to use storytelling and emotional intelligence techniques.
 
@@ -44,5 +42,4 @@ Conclusion
 ----------
 
 Leveraging your influence and persuasion skills is essential for individuals who want to navigate workplace politics successfully and achieve their personal and professional goals. By building credibility, developing relationships, using evidence, being confident and flexible, and using storytelling and emotional intelligence techniques, individuals can persuade others to support their ideas and initiatives. Remember to use empathy, manage emotions effectively, recognize and respond to nonverbal cues, and build rapport with your audience to maximize the impact of your messaging and approach.
-
 

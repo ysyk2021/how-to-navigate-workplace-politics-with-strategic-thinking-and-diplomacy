@@ -1,5 +1,3 @@
-Using Negotiation and Problem-Solving Techniques
-==================================================================================================================
 
 Managing conflict and navigating difficult situations is essential in navigating workplace politics successfully, providing opportunities to build strong relationships, establish credibility, and achieve professional growth and development over time. In this chapter, we will explore strategies and techniques for using negotiation and problem-solving effectively.
 

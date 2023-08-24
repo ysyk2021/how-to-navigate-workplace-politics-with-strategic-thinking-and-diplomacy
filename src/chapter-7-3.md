@@ -1,5 +1,3 @@
-Using Storytelling and Emotional Intelligence Techniques
-====================================================================================================================
 
 Leveraging influence and persuasion skills is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore how to use storytelling and emotional intelligence techniques to leverage your influence and persuasion skills.
 
@@ -36,5 +34,4 @@ Conclusion
 ----------
 
 Leveraging influence and persuasion skills is essential for individuals who want to navigate workplace politics successfully and achieve their personal and professional goals. By using storytelling techniques, emotional intelligence techniques, building credibility, using negotiation skills, and demonstrating adaptability, individuals can gain support for their ideas or proposals, build positive relationships, and create opportunities for career advancement. Remember to use these strategies with integrity and accountability to achieve career advancement opportunities and make positive contributions to the organization.
-
 

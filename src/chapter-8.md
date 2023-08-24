@@ -1,5 +1,3 @@
-Chapter 8: Staying Ethical and Professional
-===========================================
 
 Staying ethical and professional is essential for individuals who want to navigate workplace politics successfully. In this chapter, we will explore the importance of staying ethical and professional, strategies for doing so, and how to use integrity and accountability as guiding principles.
 
