@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Leveraging Your Influence and Persuasion Skills
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the world of workplace politics, your ability to wield influence and persuasion can be a decisive factor in your career success. In this chapter, we will explore practical strategies for harnessing and maximizing these critical skills to navigate the complex terrain of office politics.
 

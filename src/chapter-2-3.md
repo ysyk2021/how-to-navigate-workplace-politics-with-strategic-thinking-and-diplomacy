@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Navigating Workplace Politics with Strategic Thinking and Diplomacy
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Navigating workplace politics with strategic thinking and diplomacy is a crucial skill for success in any professional environment. In this chapter, we will explore effective strategies to help you navigate the complex landscape of office politics while maintaining your integrity and advancing your career.
 

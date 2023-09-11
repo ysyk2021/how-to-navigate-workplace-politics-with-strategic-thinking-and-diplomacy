@@ -1,5 +1,4 @@
-Chapter 8: Using Integrity and Accountability as Guiding Principles
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Integrity and accountability are fundamental principles when navigating workplace politics with strategic thinking and diplomacy. In this chapter, we will explore how these guiding principles can shape your actions and decisions, ultimately leading to success in the complex world of office politics.
 

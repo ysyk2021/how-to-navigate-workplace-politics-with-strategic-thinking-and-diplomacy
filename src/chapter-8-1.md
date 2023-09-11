@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Staying Ethical and Professional in Navigating Workplace Politics
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the intricate web of workplace politics, maintaining a steadfast commitment to ethics and professionalism is not just a choice---it's a necessity. In this chapter, we delve into why these principles are of paramount importance in your journey to navigate workplace politics with strategic thinking and diplomacy.
 

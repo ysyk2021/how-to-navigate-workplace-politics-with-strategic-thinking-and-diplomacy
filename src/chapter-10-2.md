@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Using Workplace Politics Skills with Strategic Thinking and Diplomacy
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the practical strategies that will allow you to combine your workplace politics skills with strategic thinking and diplomacy. These strategies are the culmination of the principles and concepts discussed throughout this book, providing you with actionable steps to excel in navigating the intricate terrain of office politics.
 

@@ -1,5 +1,4 @@
-Chapter 1: Definition of Workplace Politics
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the fundamental concept of workplace politics and gain a clear understanding of what it entails. Workplace politics, often considered a complex and unavoidable aspect of organizational life, plays a significant role in shaping an individual's career trajectory and the overall dynamics within a workplace.
 

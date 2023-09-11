@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Assessing the Political Landscape in Navigating Workplace Politics
-===============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the political landscape of your workplace is akin to having a map in an unfamiliar territory---it guides your decisions, helps you navigate challenges, and ultimately leads you to success. This chapter emphasizes the pivotal role of assessing the political landscape in mastering the art of strategic thinking and diplomacy within your organization.
 

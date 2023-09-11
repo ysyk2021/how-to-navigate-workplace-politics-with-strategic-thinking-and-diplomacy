@@ -1,5 +1,4 @@
-Chapter 12: The Benefits of Applying Workplace Politics Skills with Strategic Thinking and Diplomacy
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this final chapter, we will explore the wide array of benefits that await those who effectively apply workplace politics skills alongside strategic thinking and diplomacy. These advantages extend beyond individual career success and have a positive impact on the organization as a whole.
 

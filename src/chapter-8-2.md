@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Staying Ethical and Professional
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining ethical and professional conduct is paramount when navigating workplace politics with strategic thinking and diplomacy. In this chapter, we will explore strategies for upholding the highest standards of ethics and professionalism in your interactions with colleagues and stakeholders.
 

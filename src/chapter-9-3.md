@@ -1,5 +1,4 @@
-Chapter 11: Adjusting Workplace Politics Strategies Based on Feedback
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Feedback is a powerful tool for growth and improvement, especially when navigating workplace politics with strategic thinking and diplomacy. In this chapter, we will explore the importance of feedback and how to use it to fine-tune your political strategies.
 

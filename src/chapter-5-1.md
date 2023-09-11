@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Communicating Effectively in Navigating Workplace Politics
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of workplace politics, effective communication is the linchpin that holds together your strategies for strategic thinking and diplomacy. This chapter highlights the paramount importance of communication and provides insights into how it can be your most potent tool in navigating the intricate landscape of office politics.
 

@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Leveraging Your Influence and Persuasion Skills in Navigating Workplace Politics
-=============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the intricate dance of workplace politics, one's ability to wield influence and persuasion can be a game-changer. This chapter delves into the significance of honing these skills to successfully navigate the dynamic landscape of office politics.
 

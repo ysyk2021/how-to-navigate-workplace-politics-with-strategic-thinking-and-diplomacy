@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Leadership and Emotional Intelligence Skills
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership and emotional intelligence are two indispensable pillars of navigating workplace politics with finesse and success. In this chapter, we will delve into the significance of these skills and how they can elevate your strategic thinking and diplomacy in the workplace.
 
